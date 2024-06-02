@@ -14,4 +14,4 @@ Hi there. I’m Ganesh, a skilled and results-driven Software Developer with a s
 ## Get in touch ☕️
 
 - [Portfolio](https://ganeshdesigns.xyz)
-- [Instagram](https://instagram.com/satyasaigangadharganeshnalla)
+- [LinkedIn](https://linkedin.com/in/satyasaigangadharganeshnalla)
